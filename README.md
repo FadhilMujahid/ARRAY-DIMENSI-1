@@ -1,0 +1,2 @@
+# ARRAY-DIMENSI-1
+Fadhil Mujahid 22343044
